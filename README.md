@@ -1,7 +1,7 @@
 # Немного обо мне
 
 Меня зовут Ли Сергей, [моя ссылка на вк](vk.com/sli2014) добавляйтесь
-[alt-текст](https://vk.com/sli2014?z=photo183891088_456243587%2Falbum183891088_0%2Frev "efdf")
+[alt-текст](https://upload.wikimedia.org/wikipedia/ru/c/c2/Blow_Your_Mind_%28Mwah%29_%28Official_Single_Cover%29_by_Dua_Lipa.png "google")
 ***
 Мои увлечения
 1. горные лыжи
